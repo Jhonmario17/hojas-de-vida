@@ -4,7 +4,7 @@
 
 ###  Perfil
 
- _Experiencia en Servicio al cliente, soporte técnico pc, freelancer, Inglés_
+ _Experiencia en servicio al cliente, soporte técnico pc, freelancer, Inglés_
 
 ### Datos básicos
 
@@ -24,7 +24,7 @@
 * Comunicación asertiva
 * Proactiva
 
-### 🔹 Referencias 
+### Referencias 
 
 **Referencia laboral**
 
